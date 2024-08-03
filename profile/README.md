@@ -6,4 +6,4 @@ We belive in making things happen, making dreams happens - we're the Creator of 
 
 ## Know More
 
-Check out our [website](https://silver.vgseven.com) for more information and [contact us](https://silver.vgseven.com/contact) if you have any questions.
+Check out our [website](https://silver.vgseven.com) for more information and updates.
