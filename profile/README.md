@@ -1,4 +1,4 @@
-# Silver Company
+# Silver
 
 Silver, Make Happen.
 
